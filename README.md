@@ -1,2 +1,0 @@
-# estria
-Script Dreck Modz
